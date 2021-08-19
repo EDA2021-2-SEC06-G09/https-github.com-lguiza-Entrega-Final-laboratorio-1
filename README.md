@@ -1,3 +1,3 @@
 Integrantes:
-Laura Valentina Guiza Melo 
+Laura Valentina Guiza 
 Manuela Solorzano
